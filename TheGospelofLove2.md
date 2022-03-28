@@ -12,7 +12,7 @@ what I hear in my ear, I express!
 
 # About this Work 
 
-This work is as it is. This work may be copied but this line should be intact redirecting to the original source material at [insert link]()
+This work is as it is. This work may be copied but this line should be intact redirecting to the original source material at [The Gospel of Love 2](https://github.com/motibytes/The-Gospel-of-Love-2).
 
 This work significantly adds to the words of Christ and the Gospel of Matthew and portrays a fundamentally different portrait of the philosophy of the Christ than what is taught in Christology. 
 The author is unsure of any eternal consequences for putting words into the mouth of Christ. 
