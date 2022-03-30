@@ -168,11 +168,12 @@ only the person doing the will of My Father of Love in the dimension of Love ent
 Many will say to Me, ‘Lord, Lord, did we not prophesy in Your name, and in Your name cast out demons and in your name perform many miracles?’ 
 And then I will declare unto them, ‘I never knew you; depart you from Me, you workers of lawlessness!’
 
-The laws [principles] say give and you will receive, give love and you will receive love, but the lawless have not given, 
+The principles state; give and you will receive, give love and you will receive love; but the lawless have not given, 
 and having not given they will not receive. 
+
 You did many things in My Name, 
 but you did not know My Name, for my name was Love, and you said 'Lord', but you did not know Me, had you known Me, you 
-would have known the laws [principles] I operate by, you would have known my heart and I would have known you. 
+would have known the principles I operate by, you would have known my heart and I would have known you. 
 You did many works using My Name, but you thought I was someone else, and you did not understand that I am the servant of my Father. If you knew me, you would know my Father. If you knew my Father, you would know me. I have told you who I am and I have told you who my Father is. Why do you think I am other than what I tell you I am? 
 I have shown you myself by my way and by my truth by and my life. How could you not know me? 
 
@@ -180,12 +181,12 @@ I am the way. "I am the door." "I am the good shepherd. I know my own, and I’m
 just in the same way as the Father knows me, and I know the Father." 
 My father knows me by Love, and I know the Father by Love, 
 and I know my own by Love, and my own know me by Love. 
-If you do not know me by my Love, that I am my Love, you still do not know who I am! 
+If you do not know me by my Love, **that I am my Love**, you still do not know who I am! 
 
 “I told you, and you don’t believe." 
 The works that I do in my Father’s name, these testify about me." 
-These are the testaments to who I am. If you knew me you would know me by my works. 
-My works are how you know me by. 
+These are the testaments to who I am. If you knew me you would know me by my works, you would know my love. 
+My works are how you know me by. My works are my expression of my love, of me. 
 
 "But you don’t believe, because you are not of my sheep, as I told you.
 My sheep hear my voice, and I know them, and they follow me. 
@@ -296,7 +297,215 @@ Although I might wish all things were revealed to this world, I choose to
 “praise You, Father, Lord of the heaven and the earth, that You did have hidden these [Wisdoms, revelations and ways of Love] from the wise and educated, and did reveal these instead to the little children. Yes, Father, for this was well-pleasing before You." 
 
 Come into Love and into Me, all those struggling and burdened, and I will give you rest. 
-Take My yoke upon you and learn from Me, for Love and I are gentle and humble in heart, 
-and you will find rest for your souls. For the yoke of Love is easy and the burden of Love is light.” 
+Take My yoke upon you and learn from Me, as Love and I are gentle and humble in heart, 
+and you will find rest for your souls. The yoke of Love is easy and the burden of Love is light.” 
 
+
+# Love's Unlawfulness 
+
+If you had known what this meant, ‘I desire mercy and not sacrifice,’ 
+then you would have known Love, and if you had known Love, then you would not have condemned the guiltless.
+
+# Love's Value 
+
+[It was illegal to 'work' on the day of rest and man would condemn you for doing any 'acts of work' on this day.] 
+
+“Which among you, if you own one sheep, and the sheep falls into a pit on the day of rest, will not rescue the sheep?
+How much more valuable therefore is a man than a sheep! It is lawful to do good on the day of rest.” 
+
+It is lawful to serve good above law. 
+
+#  Love's Servant 
+
+“Behold My servant,
+
+whom I have chosen,
+
+My beloved,
+
+in whom My soul has found delight.
+
+I will put My Spirit upon Him,
+
+and He will proclaim justice to the non-Jews.
+
+He will not quarrel nor will he cry out;
+
+nor will anyone hear His voice in the streets.
+
+A bruised reed He will not break,
+
+and a smoldering wick He will not quench,
+
+until He leads justice to victory.
+
+And in His name the non-Jews will hope.”
+
+
+# Love's Being
+
+And the priests having heard Christs' words said, “This man casts out the demons only by Beelzebul, the prince of the demons.”
+
+Knowing they were thinking this, he said to them, 
+“Every kingdom that has been divided against itself falls apart, 
+and every city or home that is divided against itself will not stand. 
+
+If Satan casts out Satan, then he is divided against himself. 
+So how will his kingdom stand?
+
+And if I cast out demons through the powers of Beelzebul, 
+then by who do your sons cast them out? 
+Your sons would judge you for saying this. 
+
+But if I cast out demons by the Spirit of God, then the kingdom of God has come upon you.
+
+"Or how is anyone able to enter into the house of the strong man, 
+and to rob his goods, 
+unless he first takes down and binds up the strong man? 
+Only after he takes him down will he rob his goods."
+
+If I were not with the Spirit of God, I could not enter the house of God and take the Spirit of God's powers, 
+not unless I first overcame the Spirit of God himself. 
+
+"He who is not with Me is against Me, and he who is not gathering with Me, scatters."
+
+"The one not being with Me is against Me, and the one not gathering with Me scatters."
+
+I am the one being with the Spirit of God, and the one who is not with me is not with the Spirit of God. 
+You are not with me because you are divided against me. If you were not divided against me, you might be with me! 
+
+This is just like how the one not being with Love is against Love, and the one not gathering in Love, scatters. 
+This is because Love is of a gathering, and not being of Love is being of a dividing. 
+
+You cannot divide and be in Love, because Love is not division. 
+
+If you are divided, you are on the opposing kingdom apart from Love, 
+and being in the divided kingdom, your kingdom too is divided and scatters until it falls apart. 
+
+If one were being with Me, and I am being with the Kingdom of the Spirit of God, 
+then he would be being in the Kingdom of the Spirit of God as well. 
+
+# Love's Justification
+
+"By your words you will be justified, and by your words you will be condemned.” 
+
+The words you say out loud are remembered by yourself and others, and these words become the testimony of you. 
+The words you have said can either justify you or condemn you based on the words. 
+If you speak words of love you would be justified by your words, 
+If you spoke words of hate you would be condemned by your words. 
+
+If your words justified others, those same words would justify you. 
+If your words condemned others, those same words would condemn you. 
+
+A man who condemns everyone else, who will come to defend him? 
+
+A righteous man speaks righteous words and he is known by his words, 
+and people testify that he is righteous because of the righteous words they have heard him saying. 
+
+When the finger is pointed at this righteous man, 
+people will come to defend him on account of his words.
+people will come to justify him, just as he justified them. 
+
+
+# Love's Wisdom and Wealth
+
+A materialistic generation wants to see a sign from the Teacher, and I will give them no sign. 
+
+The queen of the south will rise up in judgment with this generation and will condemn it for this. 
+She came from the ends of the earth to hear the wisdom of Solomon, and behold, a greater wisdom than Solomon is here.
+
+[
+From the older scriptures: 
+When the queen of Sheba saw all the wisdom of Solomon and the palace he had built,
+she said, 
+"I did not believe these things until I came and saw them with my own eyes. 
+Indeed, not even half of this was told to me;
+in wisdom and wealth you have far exceeded what I had heard." 
+
+How happy your people must be! 
+How happy your officials must be, who continually stand before you and hear your wisdom! 
+
+Praise be to the LORD your God, who has delighted in you and placed you on the throne of Israel. 
+Because of the LORD’s eternal love for Israel, he has made you king to maintain justice and righteousness.” 
+]
+
+# Love's Mother and Brothers
+
+While He was speaking to the crowds, 
+his mother and brothers were standing outside, 
+seeking to speak to Him.  
+Then someone said to Him, “Behold, Your mother and Your brothers are standing outside, they seek to speak to You.”
+He answered to the one telling Him, “Who is My mother, and who are My brothers?” 
+
+He stretched out His hand to His disciples and said, “Behold, these are My mother and My brothers. 
+Whoever will do the will of My Father in the dimension of Love is My brother and my sister and my mother.”
+
+Those who do the will of love are my own. My brother is love. My mother is love. My sister is love. 
+He that does the will of love is love, he is My brother and sister and mother! 
+
+# Love's Blessing 
+
+His disciples asked Him, "“Why do You speak to them in parables?” 
+
+He said to them, “Because it has been granted to you to know the mysteries of the dimension of Love, 
+but to them it has not been granted. 
+
+Anyone who has, to him will be given, and he will be in abundance. 
+Anyone who does not have, even what he has will be taken away from him."
+
+They do not have understanding, so I cannot give more of the understanding that I have to them, I can only give them parables. 
+
+"Because of this I speak to them in parables:
+
+‘Because from seeing, they do not see,
+
+and from hearing they do not hear, neither do they understand.’"
+
+Their sight blinds them. Their hearing deafens them. Their understanding gives them misunderstanding.
+
+"And in them is fulfilled the prophecy of Isaiah, saying:
+
+‘In hearing you will hear and never understand;
+
+and in seeing you will see and never perceive.
+
+The heart of this people has dulled,
+
+and they barely hear with the ears,
+
+and they have closed their eyes,
+
+but in the case they can see with the eyes,
+
+then they should hear with the ears,
+
+then they should understand with the heart,
+
+and should turn,
+
+and I will heal them.’ 
+
+But blessed are your eyes because they see, and your ears because they hear. 
+Truly I tell you that many prophets and righteous men longed to see what you see, and they did not see; 
+and longed to hear what you hear, and they did not hear.
+
+For you have understood with your heart! 
+And in your heart this understanding has healed you! 
+See through your Heart.
+Listen through your heart, 
+
+Stop seeing with your eyes. 
+Stop hearing with your ears. 
+Begin seeing with your heart. 
+Begin listening with your heart. 
+Begin understanding. 
+
+Every time you begin thinking with your mind, 
+you stop listening. 
+Every time you think you have understanding in your thoughts, 
+you are not listening with your heart. 
+Everything you have ever been told about religion and scripture you have heard in your mind! Throw these false ideas away!
+Silence your thoughts and allow your heart to understand these words, by allowing your heart to feel them. 
+
+As the modern Christians say, listen through your Holy Spirit. 
 
