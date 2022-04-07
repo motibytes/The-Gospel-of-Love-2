@@ -2,13 +2,11 @@ The Gospel of Love 2
 
 # About the Author 
 
-'Long ago', the author wrote [The Gospel of Love](https://github.com/motibytes/The-Gospel-of-Love), an artistic reinterpretation of selected scripture from the Gospel of Matthew. 
-Readers had no reference point with which to draw the force in question. 
-This reveals that perhaps the words of Christ should not be modified as the teaching becomes more abstract rather than less. Alas! Here we are.
+The author previously authored [The Gospel of Love](https://github.com/motibytes/The-Gospel-of-Love), 
+an artistic reinterpretation of selected scripture from the Gospel of Matthew. 
 
 What I hear in the darkness, I speak in the light, 
-what I hear in my ear, I express! 
-
+what I hear in my ear, I express!
 
 # About this Work 
 
@@ -23,8 +21,6 @@ This work should be considered, at worst, as containing abstract spiritual princ
 
 This work should be considered, at best, an expression of art and love, 
 and as food for spiritual contemplation. 
-
-This work adds 'futurism' 'technology' flair to all parables! 
 
 # Preface - The Subject in Question 
 
@@ -50,34 +46,31 @@ true love that breaks the sleeping spell.
 The love shared in family and friendship in the author's opinion is also not the true love that breaks the sleeping spell.
 
 The elusive true love's kiss, in the author's experience, is the act of loving kindness that has no deeper motivation or 
-agenda behind it, it is not dependent even on if the subject is one the giver fancies or not. That is, the act has nothing 
-to do with the subject's person or the giver's person, it is an act of true love for it is an act to Love, for Love. Blessed are we when we receive a love from another when our person seemingly had no qualification to deserve it! 
+agenda behind it, it is not dependent even on whether the subject is one that the giver fancies or not. That is, the act has nothing 
+to do with the subject's person or the giver's person, it is an act of true love for it is an act to Love, for Love. 
+Blessed are we when we receive a love from another when our person seemingly had no qualification to deserve it! 
 
 The author usually uses this example at this time to express the kind of love being discussed. The author's perspective 
 is that if the "given" recognizes the act, then the vision of both parties is opened and they are both able to experience 
 the force that is there and not dependent on either of them, from an artistic viewpoint, the eyes of one has seen the eyes of 
 the other and this has caused a portal to become opened. Beauty is in the eye of the beholder, the eye must be opened to this beauty. 
 
-The giver may have already been able to 'see' love at the time of the act or not, it does not matter, it is the 
-choices that cause this event, not the current 'wakefulness' of the giver. 
-
-This is not to say that the way of love is to go do selfless acts for others, even if that were true. This is only to provide
-context to the force being discussed, this example is used because the reader usually has encountered an experience that closely 
-matches the above encounter in their lifetime.  
-
-The model painted here is actually that we would all be experiencing this force at all times if we were not casting our own veil of ignorance 
-over ourselves in order to defend ourselves from the threat of pain, that it is we who choose to believe we are alone in order to not risk the 
-vulnerability of getting hurt in connection by a temporary rejection of other. 
+The model painted here is actually that we would all be experiencing this force at all times if we were not casting our own veil of ignorance over ourselves in order to defend ourselves from the threat of pain, that it is we who choose to believe we are alone in order to not risk the vulnerability of getting hurt in connection by a temporary rejection of other. 
 
 The concept, "there is no power to hurt" means that the real you cannot be rejected nor hurt, that when someone hurts you, so to say 
 you are bearing witness to two characters that cannot currently see that they are not what they imagine themselves to be. 
 This would mean that the actual place you reside in is within the place of this force being discussed. While this goes beyond the 
 scope of this introduction it adds to the model. 
 
-In summary, this force can only be experienced and is easily seen when an act is demonstrated that shows the receiver that another 
-being sees their humanity and cares for them, this seems to be an act that looks past the fictional self the receiver believed they were, 
-and allows them to see that the target of the gift is their underlying being, the human worthy of love in their very existence, 
+This force can only be experienced and is easily seen when an act is demonstrated that shows the receiver that another 
+being sees their humanity and cares for them, 
+this seems to be an act that looks past the fictional self the receiver believed they were, 
+and allows them to see that the target of the gift is their underlying being, 
+the human worthy of love in their very existence, 
 that is to say, the being that has fundamental human rights and value. 
+
+The giver usually requires one to gift them Love first before being able to give Love. 
+This is aligned with the concept, 'The only way to repay one who gives you Love is to give Love to who does not yet have it.'  
 
 # Love's Blessing
 
@@ -509,3 +502,510 @@ Silence your thoughts and allow your heart to understand these words, by allowin
 
 As the modern Christians say, listen through your Holy Spirit. 
 
+# Love's Hidden Truth 
+
+“I will open My mouth in parables;
+
+I will utter things hidden from the foundation of the world.”
+
+# Love's Reception
+
+The disciples came to Jesus, saying, “Who then is the greatest in the kingdom of the heavens?”
+
+He summoned a child and set it in their midst, and said, 
+“Truly I say to you, 
+if you are not converted and become as the little children, 
+you will never enter into the kingdom of the heavens. 
+
+So whoever humbles himself like this little child is the greatest in the kingdom of the heavens. 
+And whoever will receive one such little child in My name, receives Me.
+
+If anyone causes one of these little ones who believe in Me to stumble, 
+it would be better for him to have a large millstone hung around his neck and to be drowned in the depths of the sea."
+
+
+
+# Love Seeks the One 
+
+What do you think? If a man has a hundred sheep and one of them goes astray, 
+will he not leave the ninety-nine on the hills and go out to search for the one that has gone astray?
+
+And if he finds it, truly I tell you, he rejoices more over that one sheep than over the ninety-nine that did not go astray.
+
+So it is not the will of your Father in the heavens that any one of these little ones should perish.
+Love's will is to help not the many, but the one. 
+Love always knows it is the **one** who needs Love, the one is who Love calls out to, the one is who calls out for Love. 
+Love's victory and success and celebration is in saving the one. 
+It is not the will of Love for any single one to perish.
+
+
+
+# Love's Agreement 
+
+Love is in agreement. 
+
+Again truly I say to you that if two of you on the earth might agree concerning any matter that they shall ask, 
+it will be done for them by My Father in the dimension of Love.
+
+Where two or three are gathered together in My name, there I am in their midst."
+
+Where two or three are gathered together in Love, there is Love in their midst. 
+
+Love is in agreement. 
+
+# Love's Master 
+
+His master called his servant saying, ‘Evil servant, I forgave you of all that debt because you begged me. 
+Shouldn't you have pitied your fellow servant, as I also had pitied you?’ 
+
+Angered, his master delivered him to the jailers, until he paid all that he owed. 
+
+This is also what My Heavenly Father will do to you, unless each of you forgives your brother from your heart.”
+
+Love forgives debts. 
+
+If you do not forgive in Love, 
+how will you be forgiven through Love? 
+
+Only love can forgive. 
+
+If you do not forgive your brother from your heart through love, 
+your heart cannot have forgiveness of yourself through love either. 
+
+You must give forgiveness in your heart to receive forgiveness in your heart. 
+
+You can only give what you know how to give, 
+but because you have already been forgiven by Love, 
+for forgiveness is in Love's very nature, 
+
+you can receive the forgiveness in your heart from Love in the understanding that it has forgiven you, 
+and you can give that forgiveness to your brother. 
+
+Do not understand this with your mind. 
+Do not listen to this with your mind. 
+
+
+# Love's Perfection
+
+A young man asked, “Teacher, what good thing shall I do that I might have eternal life?”
+And He said to him, “Why do you ask Me about what is good? Only One is good. 
+But if you desire to enter into life, keep the commandments.” 
+
+He asked Him, “Which?”
+And Jesus said, “‘You shall not murder, you shall not commit adultery, you shall not steal, you shall not bear false witness, you shall honor the father and mother, and you shall love your neighbor as yourself.’” 
+
+The young man replied, “All these things I have kept. What do I still lack?” 
+
+Jesus was saying to him, “If you desire to be perfect, go, sell your possessions, and give to the poor, and you will have treasure in the heavens; 
+and come, follow Me.” 
+
+When he heard this, the young man went away grieving; as he owned many possessions.
+
+
+
+# Love's Followers 
+
+Jesus said to His disciples, “Truly I say to you that it will be difficult for a rich man to enter into the dimension of Love. 
+And again I say to you, 
+it is easier for a camel to go through a needle's eye, than it is for a rich man to enter into the dimension of Love.”
+
+The disciples were exceedingly astonished and were asking, “Who then is able to be saved?”
+
+And Jesus looked and said to them,
+“With men, this is impossible, but with God, all things are possible.”
+
+Then Peter answering said to Him, 
+“Behold, we left all things and followed You; what will become of us?” 
+
+And Jesus said to them, “Truly I say to you that in the regeneration, 
+when the Son of Man shall sit down upon His throne of glory, 
+you having followed Me, 
+you also will sit on twelve thrones, 
+judging the twelve tribes of Israel. 
+
+And everyone who has left houses, 
+or brothers, or sisters, 
+or father, or mother, 
+or wife, or children, 
+or lands, for the sake of My name, the name of Love, 
+will receive a hundredfold, 
+and will inherit eternal life. 
+
+But many who are first - the high - will be last, and the last - the low - will be first. 
+
+
+# Love's Authority 
+
+While He was teaching in the temple, the chief priests and elders came to Him and asked, “By what authority are You doing these things? And who gave to You this authority?”
+
+And Jesus answering, said to them, 
+“I will ask you one thing, and if you tell Me, I will tell you by what authority I do these things. 
+From where was the baptism of John? From heaven, or from men?”
+
+They were reasoning amongst themselves saying, “If we say, ‘from heaven,’ 
+He will say to us, 
+‘Why then did you not believe John?’ But if we say, ‘from men,’ we fear the masses; 
+as all hold John to be a prophet.” 
+
+They answered Jesus, “We do not know.”
+
+And He said to them, 
+“Neither do I tell you by what authority I do these things." 
+
+
+# Love Has Already Come 
+
+“Truly I say to you that the tax collectors and the prostitutes go before you into the dimension of Love. 
+
+John came to you in the way of righteousness, 
+and you did not believe him, 
+but the tax collectors and the prostitutes believed him;
+And yet you saw this and did not even repent afterwards to believe him." 
+
+# Love's Marvel 
+
+Jesus says to them, “Did you never read in the Scriptures: 
+
+‘The stone that those building rejected,
+
+this has become the chief corner.
+
+This was from the Lord,
+
+and it is marvelous in our eyes’?
+
+Because of this I say to you that the the Kingdom of God - the dimension of Love - will be taken away from you, and will be given to a people producing its fruits. 
+And the one who falls onto this stone will be broken; 
+but on whoever this stone falls upon, 
+the stone will grind him into powder.” 
+
+He who has an ear let him hear! 
+Love is the asset which the world does not want and throws away in front of man's other priorities. 
+He ignores that Love was called for and instead acts from his mind. 
+The Church upholds mental idealism and discards Love.
+
+This world - including the church - obeys the instructions given in the scriptures, 
+but the world obeys the instructions from the mind and not the heart, 
+the world obeys the scriptures without the heart of Love.
+
+They do acts of obedience without compassion, without wisdom, without understanding.
+Without these ways of goodness, the Kingdom of God is instead given to those who follow a greater Love.  
+
+Falling on Love will break a man, 
+but if Love falls upon a man, 
+he will be destroyed! 
+
+Falling on Spirit will also break a man, 
+but if Spirit falls upon a man, 
+he will be destroyed! 
+
+The Spirit is also taken away from the church and given to those who are operating within the domain of the dimension of Love, those who are operating within Righteousness, Peace, and Joy, and the other ways of Goodness and Wisdom. 
+
+# Love's Greatest Law
+
+A lawyer questioned Him to test Him, asking, “Teacher, which commandment is the greatest in the Law?”
+
+And He said to the lawyer, 
+“‘You shall Love the Lord your God with all your heart, and with all your soul, and with all your mind.’ 
+This is the great and first commandment. And the second is like it: ‘You shall love your neighbor as yourself.’ 
+On these two commandments hang all the Law and the Prophets.”
+
+All the Law and the wise men hang off of Love. 
+Love you will Love with your all your Heart. 
+Love you will Love with all your Soul. 
+Love you will Love with all of your Mind. 
+
+You will Love the another as You. 
+Love will Love another as Love. 
+
+You will Love the other as Love.
+
+It is Love that you will Love as Love. 
+
+It is Love that Love will Love as Love. 
+
+The words are clear, it is only the mind and systematic programming that reject the understanding of this highest commandment, this commandment above all commandments. 
+
+This commandment understood in terms of Love causes a problem in all religion because it implies that Love precedes and takes precedence over the concept of God and what the mind believes God is. 
+
+The mind and the 'Lawyer of the mind', 
+the part of the mind that creates religion and categorizes the laws of operation, 
+this wants to uphold the concept of God, 
+the conceptualization of God first, Love second.
+ 
+Love comes first. 
+
+God in our world is a conceptual idea wrapped around Love from a single-pointed, individualized, limited conscious experiencer. 
+
+Love is Love. 
+
+The question asked by the lawyer was a trap set by the Lawyer of the mind 
+to confuse Christ, as the lawyer of the mind must categorize laws in linear order, such is law, 
+but in Understanding is the Love of Love itself, which was never of the mind. 
+The laws exist for the mind to follow in order to not offend the ways of Love. 
+
+It is unfortunate that the mind may not be able to understand Love as a word. 
+This is why man proclaims different words to express the Highest God for which he is referring to. 
+
+For the mind then, 
+It is Love that will Love as Love, 
+It is _ that _ will _ as _. 
+
+
+# Love's Higher Understanding 
+
+And the Pharisees having been assembled together, 
+Jesus questioned them, asking, “What do you think concerning the Christ? Of who is He the son?” 
+
+They say to Him, “Of David.”
+
+He says to them, “How then does David in spirit call Him Lord, saying: 
+
+‘The Lord said to my Lord,
+
+“Sit at My right hand,
+
+until I place Your enemies
+
+as a footstool for Your feet.”’
+
+So if David calls Him Lord, how is He his son?” 
+
+And no one was able to answer Him a word, nor did anyone dare from that day to question Him any longer.
+
+While this teaching affirms Jesus to be the Christ, 
+it too can be broken down to teach  Love, as Love is both my mother and my father and my daughter and my brother and my neighbor, 
+so then the Christ is David's son and His Father. 
+Had they listened to Christ's words before, they would have heard the answer to His riddle, as He had already given it many times. 
+
+
+
+# Love's Works 
+
+Do not do according to their works, they preach and do not act.  
+And they tie up burdens heavy and hard to bear and lay them on the shoulders of men;  
+but they themselves are not willing to move them with their finger. 
+
+They preach of love and goodness but do not live their lives for Love and Goodness. 
+They tell you what you should do, but they themselves would not do these things. 
+They ask you of the impossible ways a man ought to live his life, to do what is too much for a man to do, 
+and this brings their sheep into submission through guilt and shame at their weakness. 
+
+In telling you what you should do and how you should live, they repress you, control you, 
+stop you from Life as they themselves prevent themselves from living. 
+
+They use what you should do to weigh you down and keep you down. 
+Do not do according to their works, do not live according to their ways. 
+
+Observe Love! Know Love! Inspect Love! Investigate Love! Dissect Love! Ponder Love! Quantify Love! 
+Measure Love by Love's Measure! Do not do according to their works, do according to Love's ways! 
+
+But the greatest among you will be your servant. 
+The greatest among you is the servant! 
+For this is the servant of Love! 
+
+No single mind has the data or communication necessary to tell you what you must do. 
+Love does not tell you to tell others what they should do, 
+in Listening to Love you Listen for what Love calls for you to do, 
+and this means that to follow Love you cannot live as you are told by others to live, 
+and you cannot tell others to live as your mind understands that they should Live, 
+because others cannot even hear your advice, not unless God Himself is allowed to speak 
+through your voice. 
+
+# Love's Exaltation 
+
+And whoever will exalt himself will be humbled, 
+and whoever humble himself will be exalted. This is Love! 
+
+If you rise in pride, you will be brought crashing down into humility. 
+If you humble yourself to be nothing, you will gain a pride much greater than anything! 
+
+What you give is what you get! 
+
+Ask and you shall receive! 
+
+These two secrets are the same secret! 
+
+When you give away what you want, you gain what you want! 
+If you desire Love, you must give away Love, and you receive it! 
+If you have lustful desires, you must give away, relinquish your desires of lust, and then you may receive that which you lusted! 
+
+All desires must be given away in order to be gained. 
+This is only one level of Truth to this concept. 
+
+# Love's Gate  
+
+To the religious, you close the kingdom of the heavens to man. 
+You neither enter, and you do not even allow those who are entering to go in. 
+
+To the religious, you close the gate to the dimension of Love, in closing the door to Wisdom, 
+you do not enter into the dimension of Love, 
+and for those who know Love and wish to pursue Love and its deeper Way, 
+you have not allowed them access to the wisdom they have come to you for as they are traveling on the Way! 
+
+# Love's Wailing 
+
+Jerusalem, Jerusalem, killing the prophets of Love and stoning those who were of Love that were sent to her! 
+
+How often would I have gathered together your children, 
+the way in which a hen gathers together her chicks under the wings, 
+and you were not willing! 
+Behold, your house is left to you desolate! 
+For I say to you, 
+you will not see Me from now until you say, 
+‘Blessed is the One coming in the name of the Lord.’ 
+
+you will not see Love from now until you say, 
+'Blessed is the One coming in the name of the Lord.' 
+
+Perhaps 
+You are the Blessed One coming in the name of the Lord, the name of Love! 
+
+Perhaps  
+Love is the One that comes in the name of the Lord! 
+In other words, the name of the Lord, God, this name is used as a placeholder term to represent Love, the One that comes! 
+
+And in Love we mourn and weep that those servants of Love that Love sent, 
+Love's messengers, 
+they have been killed and stoned! 
+
+
+
+# Love's Name 
+
+“Take heed, lest anyone mislead you. For many will come in My Name, in The name of Love, saying, ‘I am the Christ,’ and they will mislead many."  
+Nation will rise up against nation, and kingdoms will rise up against kingdoms, 
+and there will be famines and earthquakes in various places. And all these are the beginning of birth pains. 
+
+Nations go to war with other nations in His name but they do not operate in the ways of His name, in the Way of Love. Love is one, just as Love is my neighbor and my brother and my sister and Love loves my enemy. 
+
+Those with spiritual understanding can see that Love must go through many birthpains in order to change the heart of humanity and blossom a hardened heart into a beautiful flowering. 
+As Love is revealed itself there will be great pain, as the world reacts violently to the exposure of Love and its ways, including the ways of Life. The system will react violently to even music and dancing, song and laughter, happiness and romance, all of these things the world will oppress and try to contain,  
+for darkness must grow until the hearts of man are willing to expand and open their hearts. 
+
+Only in the darkest of night can the darkest hearts of mankind see the light. 
+
+"The people living in darkness 
+have seen a great light; 
+on those living in the land of the shadow of death, 
+a light has dawned.” 
+
+He who has an ear let him hear! Love can only break through the heart of man when he is living in the land of the shadow of death! 
+
+Only in great darkness will man see the hidden light! 
+Love will only be born after this earth's heart has taken enough destruction for Love to cry out above all voices in the city streets and be heard by the people and her Ways followed. 
+
+All who possess understanding of Love and follow its Way come to know and see these birth pains of humanity.  
+
+# Love's Account 
+
+Then will they deliver you to tribulation, and will kill you, and you will be hated by all the nations on account of My name, the name of Love.
+
+And then many will fall away, and they will betray eachother, and they will hate eachother; 
+and many false prophets, the ones who do not know Love will arise, and will lead many astray. 
+
+They will hate one another as they did not choose love, and they will kill you for love.  
+The world will react violently to Love always, because Love causes death to this world. 
+Love's Ways are destructive to man's own ways, systems, and structures. 
+Man's own ways, systems, and structures are also destructive to himself, and a house divided will fall.
+
+# Love's Endurance
+
+'And because lawlessness willis to be multiplied, the love of the many will grow cold. But the one who has endured to the end, he will be saved.'
+
+The love of the masses will have grown cold, but the one who has held on to Love to the end will be saved by Love for he is Love! 
+
+But for the rest, their love will grow cold. And Love will say to them, I never knew you! Begone from me, you workers of lawlessness! 
+
+Be the one who endures in holding onto Love until the end. 
+This is because Love is all that remains in the end. 
+
+# Love's Beginning 
+
+And this gospel of the kingdom will be proclaimed in the whole earth, for a testimony to all the nations; and then the end will come. 
+
+And finally, 
+‘The sun will be darkened, 
+
+and the moon will not give its light, 
+
+and the stars will fall from the sky, 
+
+and the powers of the heavens will be shaken.’ 
+
+There will be no light left upon the earth. 
+
+# Love's Nearness
+
+"Now learn the parable of the fig tree: When its branch already may have become tender and it puts forth leaves, you know that the summer is near. So also you, when you see all these things, know that He is near, at the doors."
+
+Look around you and look to see all these things of summer! 
+Love has drawn near to us now in the present! 
+Open the doors! 
+
+# Love
+
+Then the righteous will answer Him, saying, ‘Lord, when did we see You hungering, and fed You? Or thirsting, and gave You drink? And when did we see You a stranger, and took You in? Or naked, and clothed You? And when did we see You ailing or in prison, and came to You?’
+
+And the King answering, will say to them, ‘Truly I say to you, to the extent that you did it to one of the least of these brothers of Mine, you did it to Me.’ 
+
+You were a servant of Love, and you served Me. 
+When I called for you, you gave to me. 
+As I have told you, I am your brother and your sister and your mother and your father and your lover. 
+I am the stranger and I am the hungry and I am the thirsting, I am the naked, I am the ailing, I am the imprisoned and I am you. 
+ 
+Then also He will say to those on the left, 
+‘Depart from Me, those being cursed, into the eternal fire, you have been prepared for the devil and his angels. I hungered, and you gave to Me nothing to eat; 
+and I thirsted, and You gave Me nothing to drink; 
+I was a stranger, and You did not take Me in; 
+naked, and you did not clothe Me; 
+sick and in prison, and you did not visit Me.’ 
+
+‘Truly I say to you, to the extent that you did not do it to one of the least of these, neither did you to Me.’
+And these will go away into eternal punishment; but the righteous into eternal life.”
+
+And I will say I never knew you, for I told you who I was and you never knew me. 
+
+# Love's Words 
+
+'The heaven and the earth will pass away, but My words shall not pass away.' 
+
+For my words are the words of Love! Love's words will never pass away! 
+Love's words cry out on the street corner! 
+My words are that which was never born and have never died, 
+they are eternal because they are of Truth. 
+
+My words will not pass away because Love's words are inaudible to the one who hears them. 
+Those who know Love's words can always hear Love's words. 
+
+To Know Love is to Know Knowing. 
+To know Wisdom is to know Wisdom. 
+Wisdom is of Love. 
+Wisdom is in Life. 
+Life and Wisdom are within Love. 
+
+The reason that Love's words can never pass away is because Eternal Life is Eternal Life. 
+Life will never pass away for it is Life and it is not Death. 
+
+Death is what passes away. Life Lives Eternally. 
+
+Love's words can never pass away because Life itself carries Wisdom. 
+One can learn Wisdom by observing Life. 
+The Ways of God and the Ways of Love are all within Life's Way. 
+The Way of Love is also the Way of Life. 
+Life teaches Love, and it teaches Love silently through the observation of how Life operates 
+by those who are capable of understanding. 
+Love can be silently learned by observing the growth in Life and man needs no teacher but God Himself to reveal Wisdom's Ways to him. 
+
+Man's world falls farther into darkness as it isolates itself from Life and man's people, 
+the ones capable of understanding Love, they are exposed less to Life and live within Death.  
+
+When Death has killed most of Life, man's heart will cry out and break open to destroy Death and return to the Ways of Life, the Ways of Love, the Truth of Life. 
+
+I Am the Way, the Truth, and the Life. 
+
+"He is not the God of the dead, but of the living." 
+
+# From the Author 
+
+There ino way to s 
