@@ -1006,6 +1006,4 @@ I Am the Way, the Truth, and the Life.
 
 "He is not the God of the dead, but of the living." 
 
-# From the Author 
-
-There ino way to s 
+Our God is the God of Life. 
